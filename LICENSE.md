@@ -1,4 +1,4 @@
-#  
+#  Experience steal a brainrot like never before with steal a brainrot Script elite, the #1 Script. Includes auto-farm and esp for unbeatable
 
 
 
